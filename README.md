@@ -1,0 +1,1 @@
+# Kural-3-Herkes-Birbirine-Sayg-l-Davranmal-d-r
